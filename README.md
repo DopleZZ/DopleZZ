@@ -1,4 +1,4 @@
-<h2 align="left">we need to become specialists ourselves</h2>
+<h2 align="left">bruh what is all about</h2>
 
 ###
 
